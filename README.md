@@ -1,2 +1,2 @@
 ScriptingFall2019
-2019\08\22: Super smaugy. there must have been a fire. over all not too hot. cooled off by the end of today.
+2019\08\23: The sky was much more palatable today. The smaug had more or less cleared and the temperature was much more appeling.
