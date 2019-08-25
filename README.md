@@ -1,2 +1,2 @@
 ScriptingFall2019
-2019\08\23: The sky was much more palatable today. The smaug had more or less cleared and the temperature was much more appeling.
+2019\08\24: Today was really really hot and dry. I was at a reneasaunce fair and there was no wind or anything.
