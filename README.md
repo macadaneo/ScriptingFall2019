@@ -1,2 +1,2 @@
 ScriptingFall2019
-2019\08\24: Today was really really hot and dry. I was at a reneasaunce fair and there was no wind or anything.
+2019\08\25: I just know it was sunny. I didn't really go outside today. Only early in the morning when it was cool and calm.
