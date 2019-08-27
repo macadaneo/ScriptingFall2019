@@ -1,2 +1,2 @@
 ScriptingFall2019
-2019\08\25: I just know it was sunny. I didn't really go outside today. Only early in the morning when it was cool and calm.
+2019\08\26: Weather was quite nice today. Even though the sun was out and the skys were clear it was relitively cool all day long.
